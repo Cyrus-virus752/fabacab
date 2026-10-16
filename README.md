@@ -1,1 +1,1 @@
-Fuck the police.
+(Fuck)(ipo))((police)
